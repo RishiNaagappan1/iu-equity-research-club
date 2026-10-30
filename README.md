@@ -1,0 +1,1 @@
+# iu-equity-research-club
